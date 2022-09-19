@@ -1,5 +1,5 @@
 # MercadoTech
 Isabel Lizarralde
 Sara Acevedo
-Angie Pinzon
+Angie Pinzon :hugs:
 Ana Correa
